@@ -1,0 +1,1 @@
+# handycurls_privacy_policy
